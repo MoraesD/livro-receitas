@@ -1,4 +1,0 @@
-# STROGONOFF DE FRANGO
-**negrito**
-
-	
